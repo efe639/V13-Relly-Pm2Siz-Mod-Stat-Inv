@@ -1,4 +1,6 @@
-# V13-Relly-Pm2Siz-Mod-Stat-Inv
+# V13-Relly-Pm2Siz-Mod-Stat-Inv 
+
+**50 STAR 20 FORKA GELİYOR BASIN**
 
 ![image](https://user-images.githubusercontent.com/79768100/182145870-9eea50cd-f2cd-47a3-ab3c-a48b3803b82e.png)
 
